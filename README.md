@@ -10,7 +10,7 @@ Happy DDoSing!
 [+]============================[+]
  #                             
  #      MESSAGE ME AT 
- # www.facebook.com/romnick.basas.50
+ # www.facebook.com/botnetmaster1337
  #
  #   IF THEIR IS A PROBLEM.
  #
